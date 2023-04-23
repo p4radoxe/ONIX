@@ -15,5 +15,6 @@ ONIX
  
 •Works in HTTPS connection.
 
-FOR BUY Contact : https://t.me/expIoit3r
-Visit Website   : https://exploiterarmy.github.io/ONIX/
+•FOR BUY Contact : https://t.me/expIoit3r
+
+•Visit Website   : https://exploiterarmy.github.io/ONIX/
