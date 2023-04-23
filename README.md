@@ -17,4 +17,6 @@ ONIX
 
 •FOR BUY Contact : https://t.me/expIoit3r
 
+•Join Channel    : https://t.me/onixtool
+
 •Visit Website   : https://exploiterarmy.github.io/ONIX/
